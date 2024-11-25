@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Gracia92
+- 👀 I’m interested in UX UI design proyects
+- 🌱 I’m currently learning UX UX design and Scrum
+- 💞️ Understand human brain
+- 😄 Pronouns: Gracia
+- ⚡ Fun fact: I am a very multidisciplinary. I have training in Psichology, coaching, health area, UX UI design and Scrum. I am very very creative.
